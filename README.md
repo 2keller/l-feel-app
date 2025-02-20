@@ -1,2 +1,2 @@
 # l-feel
-asocial plartfom to be heard
+a social plartfom to be heard
